@@ -1,2 +1,2 @@
 # scmg4 
-its drishti
+its diya
