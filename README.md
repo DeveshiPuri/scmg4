@@ -1,2 +1,1 @@
-drishti is pagal
-
+diya is pagal
