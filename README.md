@@ -1,1 +1,1 @@
-drishti gndi soch wali
+drishti and diya
