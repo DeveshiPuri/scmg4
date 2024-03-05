@@ -1,1 +1,1 @@
-diya is pagal
+drishti gndi soch wali
